@@ -1,1 +1,1 @@
-# [謝理致CV]([網址](https://joshuahsieh0530.github.io/)).
+# [謝理致CV](https://joshuahsieh0530.github.io/).
